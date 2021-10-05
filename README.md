@@ -10,7 +10,7 @@ Hello i'm Hari XDD 👋
 
 -💬 Ask me about Flutter or any tech-related stuff.
 
--📫 How to reach me: facebook - @hainho.2000 , gmail - @hai19831111@gmail.com
+-📫 How to reach me: facebook - @https://www.facebook.com/hainho.2000 , gmail - @hai19831111@gmail.com
 
 -😄 Pronouns: He/His
 
